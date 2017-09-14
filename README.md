@@ -1,1 +1,0 @@
-# F-ndu-zh-nggu-r-n
